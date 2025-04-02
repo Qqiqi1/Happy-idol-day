@@ -1,2 +1,3 @@
 # Happy-idol-day 
-< What would you do if you discovered dark things about the most popular idol in the world?>
+Content about this game and themes should not be done in real life.
+
